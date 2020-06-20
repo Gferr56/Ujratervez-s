@@ -1,0 +1,2 @@
+# Ujratervez-s
+gyakorlás
